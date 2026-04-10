@@ -53,7 +53,7 @@ Because Moz has been around for years, it remains one of the **most beginner-fri
 
 If you want to try Moz with a discount, start here:
 
-👉 **[Start Moz Pro with the latest discount](https://yamuparkoti.com/Go-Moz)**
+👉 **[Start Moz Pro with the latest discount](https://moz.pxf.io/OYBL9W)**
 
 Starting through this link ensures you receive **current promotional offers or free trial access when available**.
 
@@ -80,7 +80,7 @@ This allows you to test features like:
 
 You can explore the platform and see whether it fits your needs.
 
-👉 **[Start your Moz free trial](https://yamuparkoti.com/Go-Moz)**
+👉 **[Start your Moz free trial](https://moz.pxf.io/OYBL9W)**
 
 ---
 
@@ -105,7 +105,7 @@ Choosing **yearly billing** instead of monthly payments can provide additional s
 
 Many users save **hundreds of dollars per year** by choosing annual plans.
 
-👉 **[Check Moz annual pricing and discounts](https://yamuparkoti.com/Go-Moz)**
+👉 **[Check Moz annual pricing and discounts](https://moz.pxf.io/OYBL9W)**
 
 ---
 
@@ -117,7 +117,7 @@ Using a Moz promo code is simple.
 
 Go here:
 
-👉 **[Open Moz Pro plans](https://yamuparkoti.com/Go-Moz)**
+👉 **[Open Moz Pro plans](https://moz.pxf.io/OYBL9W)**
 
 ---
 
