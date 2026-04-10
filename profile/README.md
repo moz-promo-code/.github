@@ -254,6 +254,6 @@ If you want to improve rankings, analyze competitors, and grow organic traffic, 
 
 Ready to grow your SEO?
 
-👉 **[Start your Moz Pro trial here](https://yamuparkoti.com/Go-Moz)**
+👉 **[Start your Moz Pro trial here](https://moz.pxf.io/OYBL9W)**
 
 Apply the latest **Moz promo code** at checkout and start optimizing your website today.
